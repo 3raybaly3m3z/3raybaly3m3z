@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @3raybaly3m3z
+- 👀 I’m interested in ur mum
+- 🌱 I’m currently learning Computer Science
+- 💞️ I’m looking to collaborate on ur mum hehe
+- 📫 How to reach me ask ur mum!
